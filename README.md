@@ -1,2 +1,2 @@
-# 物色一下，有你想要
+# 物色一下，给你想要
 WWW.WUSEWUSE.COM · WWW.WUSE.APP
